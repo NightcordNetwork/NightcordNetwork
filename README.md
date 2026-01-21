@@ -13,4 +13,3 @@ tho we might follow if we sent something on ur straw/ata ^^
 ![deepdreamsstamp1](https://github.com/user-attachments/assets/1460736e-20e2-4091-861e-395149151940)
 
 
-[Before you interact](https://rentry.co/tenementbyi) || [about the collective](https://pluralkit.xyz/s/cnjdi)
