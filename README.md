@@ -8,7 +8,7 @@ tho we might follow if we sent something on ur straw/ata ^^
 
 ![bluethin](https://file.garden/ZsWdCiRhGGFNpDAu/dividers/bluethin.png)
 
-edit: before following us, just be aware that we effectivelly support all plurals/systems cause we believe DID/OSDD/UDD are more than just "alter disorders". people with CDD symptoms and people who are plural deserve respect and to live however they want to.
+edit: before following us, just be aware that we effectivelly support all plurals/systems cause we believe DID/OSDD/UDD are more than just "alter disorders". people with CDDs and people who are plural deserve respect and to live however they want to.
 
 ![tumblr_304fea7d8a0a9050c0a2c17a95592dc3_fe5831cb_400](https://github.com/user-attachments/assets/c00ec6ab-d56f-4824-bb72-2cc40c5a0cf4)
 
