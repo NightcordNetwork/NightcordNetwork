@@ -1,7 +1,9 @@
 
 
 silly creatures that like to draw and study. currently very into sonic. fictive heavy.
-some of us selfship and do oshikatsu but don't call us yumeshippers please. very uncomfy with that
+
+some of us selfship and partake in oshikatsu but don't call us yumeshippers please. very uncomfy with that
+
 
 https://morethanone.info/
 
